@@ -27,7 +27,7 @@ Curious, creative, and always learning. I blend code and design to build awesome
 
 ## 📈 Let's Connect!
 
-<!-- [Facebook](https://www.facebook.com/sophea.vatey.720626) -->
+[Facebook](https://www.facebook.com/sophea.vatey.720626)
 
 ---
 
